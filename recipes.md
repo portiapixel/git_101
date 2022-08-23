@@ -1,6 +1,7 @@
 # recipes
 
 ## apple tart
+![a picture of a delicious apple tart](images/apple_tart.jpg)
 prep time 60 minutes 
 
 ### ingredients
