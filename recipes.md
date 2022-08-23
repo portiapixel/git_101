@@ -44,3 +44,15 @@ Start cooking the rice in a separate pan or rice cooker or whatever. If you're a
 Brown the sausage in a large pan on medium heat. When brown, add the onion and the garlic. When the onions are translucent, add the frozen spinach, and the can of cream of mushroom soup. Reduce the heat to medium low, and give the spinach some time to thaw. Stir every few minutes, until everything is well mixed and hot.
 
 Serve the spinach mess over the rice. Goes really well with a little soy sauce and sriracha.
+
+## Grass for Goats
+
+Prep time: Fuck, I don't know, who has time for time for lawn maintenance anymore? Let the Goats eat it. They can eat it at their own pace.
+
+### Ingredients
+
+- grass
+
+### Directions
+
+Feed the grass to the Goats.
