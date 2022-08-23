@@ -21,7 +21,7 @@ dry ingredients
 
 ### Directions
 
-Combine apples with other liquid ingredients in a bowl and mix well. Combine flour and other dry ingredients after sifting, and roll into a ball. Refrigerate the dough ball for 30 minutes. Place the ball in between two sheets of parchment paper and roll flat to 1/2 inch thickness. Press the flattened dough into a pie plate. Pour liquid filling into dough and bake for 35 minutes at 375 degrees.
+Combine apples with other liquid ingredients in a bowl and mix well. Combine flour and other dry ingredients after sifting, and roll into a ball. Refrigerate the dough ball for 30 minutes. Place the ball in between two sheets of parchment paper and roll flat to 1/2 inch thickness. Press the flattened dough into a pie plate. Pour liquid filling into dough and bake for 35 minutes at 375 degrees. Bon appetit.
 
 
 ## Delicious Spinach Dish
