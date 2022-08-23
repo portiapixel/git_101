@@ -1,11 +1,11 @@
-# recipes
+# Recipes
 
-## apple tart
+## Apple Tart
 ![a picture of a delicious apple tart](images/apple_tart.jpg)
 
 prep time 60 minutes 
 
-### ingredients
+### Ingredients
 
 wet ingredients 
 - 4 thinly sliced cored apples
@@ -19,8 +19,34 @@ dry ingredients
 - 1 tsp salt
 - 1 tsp baking powder
 
-### directions
+### Directions
+
+Combine apples with other liquid ingredients in a bowl and mix well. Combine flour and other dry ingredients after sifting, and roll into a ball. Place the ball in between two sheets of parchment paper and roll flat to 1/2 inch thickness. Press the flattened dough into a pie plate. Pour liquid filling into dough and bake for 35 minutes at 375 degrees.
+
+
+## Delicious Spinach Dish
+
+Prep time: 20 minutes
+
+### ingredients
+
+- 1 pound of ground sausage
+- 1 bulb of garlic, diced
+- 1 medium yellow onion, diced
+- 1 brick or bag of frozen chopped spinach
+- 1 can of cream of mushroom soup
+- 2 cups of rice
+
+### Directions
+
+Start cooking the rice in a separate pan or rice cooker or whatever. If you're a rockstar, you'll add half a stick of butter to it because fuck yeah.
+
+Brown the sausage in a large pan on medium heat. When brown, add the onion and the garlic. When the onions are translucent, add the frozen spinach, and the can of cream of mushroom soup. Reduce the heat to medium low, and give the spinach some time to thaw. Stir every few minutes, until everything is well mixed and hot.
+
 
 Combine apples with other liquid ingredients in a bowl and mix well. Combine flour and other dry ingredients after sifting, and roll into a ball. Place the ball in between two sheets of parchment paper and roll flat to 1/2 inch thickness. Press the flattened dough into a pie plate. Pour liquid filling into dough and bake for 35 minutes at 375 degrees. 
 
 Don't let the goats eat your desserts! 🐐
+
+Serve the spinach mess over the rice. Goes really well with a little soy sauce and sriracha.
+
