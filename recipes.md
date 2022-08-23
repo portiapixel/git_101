@@ -4,9 +4,18 @@
 prep time 60 minutes 
 
 ### ingredients
+
+wet ingredients 
 - 4 thinly sliced cored apples
 - 2 eggs
+- 1 tbsp milk 
+- 1 tsp cinnamon
 
+dry ingredients 
+- 2 cups flour
+- 2 tbsp butter
+- 1 tsp salt
+- 1 tsp baking powder
 
 ### directions
 
